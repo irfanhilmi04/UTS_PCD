@@ -4,3 +4,4 @@
 ## TI.19.A2
 
 # LINK YOUTUBE
+https://www.youtube.com/watch?v=hmTmz1iw6P8
